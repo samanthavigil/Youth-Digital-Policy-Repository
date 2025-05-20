@@ -8,3 +8,6 @@ The Youth Digital Policy Repository (YDPR) allows scholars who study social medi
 
 How do I use and cite this project? 
 Updated information on using and citing the YDPR in your work will be made available as soon as the project is officially published. Please check back for updates and reach out with any questions! 
+
+
+For any question, comments, or suggestions please email Samantha Vigil (slvigil@ucdavis.edu). 
